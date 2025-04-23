@@ -4,7 +4,7 @@
 
 💞️ I’m looking to collaborate on SEO campaigns and content optimization projects
 
-📫 How to reach me: https://ioed.pk/seo-course/
+📫 How to reach me: info@ioed.pk
 
 😄 Pronouns: She/Her
 
